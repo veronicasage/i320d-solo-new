@@ -1,0 +1,1 @@
+# i320d-solo-new
